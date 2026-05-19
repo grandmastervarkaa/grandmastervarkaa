@@ -6,5 +6,6 @@
   </a>
 </p>
 
-<img src="https://i.pinimg.com/736x/4c/b4/0e/4cb40eef2c9666b3db5231d74aeeb93a.jpg" width="300"/>
-
+<p align="center">
+*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ 
+</p>

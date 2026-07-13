@@ -7,10 +7,17 @@
 </p>
 
 <p align="center">
-<img width="680" height="403" alt="c18d1454e64945a3b2492d4423a850e6" src="https://github.com/user-attachments/assets/7f6f901d-ae90-45ae-87cc-7f1753e2cefb" />
+<img width="700" height="400" alt="Screenshot_20260617_225650_Pony_Town" src="https://github.com/user-attachments/assets/be1992fd-f69c-4316-b181-d4f916cf162d" />
 </p>
 
 <p align="center">
 *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ 
 </p>
+
+
+<p align="center">
+<img width="400" height="350" alt="cb67ce11758074a62b5080d866a3a5de" src="https://github.com/user-attachments/assets/23e22a3a-570c-4503-87c1-d553a458e09d" />
+</p>
+
+                                                                                                                                                                                                                                                                                                                                                                               
 

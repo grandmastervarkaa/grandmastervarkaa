@@ -20,15 +20,15 @@
 </p>
 <h1>𝓐𝓫𝓸𝓾𝓽 𝓜𝓮</h1>
 
-<img width="570" height="115" alt="Screenshot_20260804_221123_TikTok" src="https://github.com/user-attachments/assets/a4413a80-3a3b-4c5b-b20d-126e81d264bb" />
-<img width="570" height="115" alt="Screenshot_20260804_221120_TikTok" src="https://github.com/user-attachments/assets/ae84983b-fcdb-442e-bf9f-eddc6a89ea6a" />
+<img width="530" height="90" alt="Screenshot_20260804_221123_TikTok" src="https://github.com/user-attachments/assets/a4413a80-3a3b-4c5b-b20d-126e81d264bb" />
+<img width="530" height="90" alt="Screenshot_20260804_221120_TikTok" src="https://github.com/user-attachments/assets/ae84983b-fcdb-442e-bf9f-eddc6a89ea6a" />
 
 <h4>(tritype)</h4>
 
 
-<img width="570" height="115" alt="Screenshot_20260804_221136_TikTok" src="https://github.com/user-attachments/assets/fc58aff3-6b85-4dfc-a5d6-10c5addf1637" />
+<img width="530" height="90" alt="Screenshot_20260804_221136_TikTok" src="https://github.com/user-attachments/assets/fc58aff3-6b85-4dfc-a5d6-10c5addf1637" />
 
-<img width="570" height="115" alt="Screenshot_20260804_221139_TikTok" src="https://github.com/user-attachments/assets/785e51a3-7f5c-4ea0-b4b8-191d2fa26461" />
+<img width="530" height="90" alt="Screenshot_20260804_221139_TikTok" src="https://github.com/user-attachments/assets/785e51a3-7f5c-4ea0-b4b8-191d2fa26461" />
 
 
 

@@ -19,6 +19,20 @@
 <img width="400" height="350" alt="cb67ce11758074a62b5080d866a3a5de" src="https://github.com/user-attachments/assets/23e22a3a-570c-4503-87c1-d553a458e09d" />
 </p>
 <h1>𝓐𝓫𝓸𝓾𝓽 𝓜𝓮</h1>
+
+<img width="570" height="115" alt="Screenshot_20260804_221123_TikTok" src="https://github.com/user-attachments/assets/a4413a80-3a3b-4c5b-b20d-126e81d264bb" />
+<img width="570" height="115" alt="Screenshot_20260804_221120_TikTok" src="https://github.com/user-attachments/assets/ae84983b-fcdb-442e-bf9f-eddc6a89ea6a" />
+
+<h4>(tritype)</h4>
+
+
+<img width="570" height="115" alt="Screenshot_20260804_221136_TikTok" src="https://github.com/user-attachments/assets/fc58aff3-6b85-4dfc-a5d6-10c5addf1637" />
+
+<img width="570" height="115" alt="Screenshot_20260804_221139_TikTok" src="https://github.com/user-attachments/assets/785e51a3-7f5c-4ea0-b4b8-191d2fa26461" />
+
+
+
+
 — ɪᴍ ᴠᴇʀʏ ꜱᴜᴘᴇʀ ᴇxᴛʀᴇᴍᴇʟʏ ᴛᴀʟᴋᴀᴛɪᴠᴇ ꜱᴏ ɪ ᴅᴏɴᴛ ᴍɪɴᴅ ɪɴᴛꜱ, ʏᴏᴜ ᴍᴀʏ ᴇᴠᴇɴ ᴀᴅᴅ ᴍᴇ ᴏɴ ᴏᴛʜᴇʀ ꜱᴏᴄɪᴀʟꜱ!!(ᴘʟᴇᴀꜱᴇᴅᴏ)
 
 -> <a href="https://discord.gg/sTQPAhws">Discord</a> , <a href="https://www.tiktok.com/@northwindveil?_r=1&_t=ZS-980e0hulPCW">TikTok</a>

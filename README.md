@@ -14,16 +14,13 @@
 *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ 
 </p>
 
+<h1></h1>
+
 
 <p align="center">
 <img width="400" height="350" alt="cb67ce11758074a62b5080d866a3a5de" src="https://github.com/user-attachments/assets/23e22a3a-570c-4503-87c1-d553a458e09d" />
 </p>
 <h1>𝓐𝓫𝓸𝓾𝓽 𝓜𝓮</h1>
-
-<img width="530" height="90" alt="Screenshot_20260804_221123_TikTok" src="https://github.com/user-attachments/assets/a4413a80-3a3b-4c5b-b20d-126e81d264bb" />
-<img width="530" height="90" alt="Screenshot_20260804_221120_TikTok" src="https://github.com/user-attachments/assets/ae84983b-fcdb-442e-bf9f-eddc6a89ea6a" />
-
-<h1></h1>
 
 — ɪᴍ ᴠᴇʀʏ ꜱᴜᴘᴇʀ ᴇxᴛʀᴇᴍᴇʟʏ ᴛᴀʟᴋᴀᴛɪᴠᴇ ꜱᴏ ɪ ᴅᴏɴᴛ ᴍɪɴᴅ ɪɴᴛꜱ, ʏᴏᴜ ᴍᴀʏ ᴇᴠᴇɴ ᴀᴅᴅ ᴍᴇ ᴏɴ ᴏᴛʜᴇʀ ꜱᴏᴄɪᴀʟꜱ!!(ᴘʟᴇᴀꜱᴇᴅᴏ)
 

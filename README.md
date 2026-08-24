@@ -18,7 +18,7 @@
 
 — ɪᴍ ᴠᴇʀʏ ꜱᴜᴘᴇʀ ᴇxᴛʀᴇᴍᴇʟʏ ᴛᴀʟᴋᴀᴛɪᴠᴇ ꜱᴏ ɪ ᴅᴏɴᴛ ᴍɪɴᴅ ɪɴᴛꜱ, ʏᴏᴜ ᴍᴀʏ ᴇᴠᴇɴ ᴀᴅᴅ ᴍᴇ ᴏɴ ᴏᴛʜᴇʀ ꜱᴏᴄɪᴀʟꜱ!!(ᴘʟᴇᴀꜱᴇᴅᴏ)
 
--> <a href="https://discord.gg/sTQPAhws">Discord</a> , <a href="https://www.tiktok.com/@northwindveil?_r=1&_t=ZS-980e0hulPCW">TikTok</a>
+-> <a href="https://discord.gg/v6ZDuMUC">Discord</a> , <a href="https://www.tiktok.com/@northwindveil?_r=1&_t=ZS-980e0hulPCW">TikTok</a>
 
 — ᴘʟᴇᴀꜱꜱᴇᴇᴇᴇ ᴄ+ʜ!!!!!!! ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴀᴘᴘʀᴏᴀᴄʜ ᴍᴇ ᴇᴠᴇɴ ᴡʜᴇɴ ɪᴍ ꜱɪᴛᴛɪɴɢ ᴀʟᴏɴᴇ, ɪʟʟ ɪɴꜰᴏʀᴍ ʏᴏᴜ ɪꜰ ɪ ɴᴇᴇᴅ ꜱᴘᴀᴄᴇ.
 

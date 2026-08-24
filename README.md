@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=grandmastervarkaa&label=✦&color=red" />
+  <img src="https://komarev.com/ghpvc/?username=grandmastervarkaa&label=✦&color=yellow" />
 </p>
 
 <p align="center">
@@ -7,19 +7,13 @@
 </p>
 
 <p align="center">
-<img width="700" height="400" alt="Screenshot_20260617_225650_Pony_Town" src="https://github.com/user-attachments/assets/be1992fd-f69c-4316-b181-d4f916cf162d" />
+<img width="550" height="457" alt="7207803c51381522b53466e55259567b" src="https://github.com/user-attachments/assets/5680dd5d-420b-42d3-b1f1-c103c25d150d" />
 </p>
 
 <p align="center">
-*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ 
+  *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚ 
 </p>
 
-<h1></h1>
-
-
-<p align="center">
-<img width="400" height="350" alt="cb67ce11758074a62b5080d866a3a5de" src="https://github.com/user-attachments/assets/23e22a3a-570c-4503-87c1-d553a458e09d" />
-</p>
 <h1>𝓐𝓫𝓸𝓾𝓽 𝓜𝓮</h1>
 
 — ɪᴍ ᴠᴇʀʏ ꜱᴜᴘᴇʀ ᴇxᴛʀᴇᴍᴇʟʏ ᴛᴀʟᴋᴀᴛɪᴠᴇ ꜱᴏ ɪ ᴅᴏɴᴛ ᴍɪɴᴅ ɪɴᴛꜱ, ʏᴏᴜ ᴍᴀʏ ᴇᴠᴇɴ ᴀᴅᴅ ᴍᴇ ᴏɴ ᴏᴛʜᴇʀ ꜱᴏᴄɪᴀʟꜱ!!(ᴘʟᴇᴀꜱᴇᴅᴏ)
@@ -34,7 +28,7 @@
 
 — ɴᴏ ɪɴꜱᴘᴏ ᴜɴʟᴇꜱꜱ ꜰʀɪᴇɴᴅꜱ & ᴄᴏᴘʏ ᴡɪʟʟ ʙᴇ ʜɪᴅ/ʙʟᴏᴄᴋᴇᴅ, ᴘʟᴇᴀꜱᴇ ʙᴇ ᴏʀɪɢɪɴᴀʟ.
 
-— -15 ᴘᴏꜱꜱɪʙʟʏ ɪᴡᴇᴄ
+— -15 ɪᴡᴇᴄ.
 
 — ᴘʟᴇᴀꜱᴇ ᴅᴏɴᴛ ɪɴᴠᴏʟᴠᴇ ᴍᴇ ᴍᴇ ɪɴᴛᴏ ᴀɴʏ ᴅʀᴀᴍᴀ/ʙᴇᴇꜰ ᴛʜᴀᴛ ᴅᴏᴇꜱɴᴛ ᴄᴏɴᴛᴀɪɴ ᴀɴ ɪꜱꜱᴜᴇ ᴀʙᴏᴜᴛ ᴍᴇ ᴏʀ ᴍʏ ꜰʀɪᴇɴᴅꜱ. ɪʟʟ ᴏɴʟʏ ᴛᴀᴋᴇ ᴄᴀʀᴇ ᴏꜰ ɪᴛ ɪꜰ ɪᴛꜱ ᴀʙᴏᴜᴛ ꜱᴏᴍᴇᴏɴᴇ ɪ ᴋɴᴏᴡ.
 

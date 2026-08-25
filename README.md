@@ -1,4 +1,8 @@
 <p align="center">
+<a href="https://kaysome.atabook.org/">𝙖𝙩𝙖</a> <a href="https://kaykies.straw.page/">𝙨𝙩𝙧𝙖𝙬</a> <a href="https://kaykies.pronouns.page">𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙨𝙥𝙖𝙜𝙚</a> 
+</p>
+
+<p align="center">
   <img src="https://komarev.com/ghpvc/?username=grandmastervarkaa&label=✦&color=red" />
 </p>
 
